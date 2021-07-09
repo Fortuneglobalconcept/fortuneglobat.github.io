@@ -1,0 +1,1 @@
+# fortuneglobat.github.io
